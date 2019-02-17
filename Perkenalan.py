@@ -1,0 +1,11 @@
+guys Saya Nr.S4ng3x
+Saya baru buat Akun GitHub :v
+Aku orangnya Goblok,Tolol,Nub lagi
+Saya Dari JawaBarat
+kota kepo
+daerah kepo
+Gajelas Ihk anjing :v' | lolcat
+date | lolcat
+
+Saya Akan bikin tools yg terbaik 
+insyallah Yg NoRoot' | lolcat
